@@ -1,3 +1,3 @@
-# The account has been closed.
+# The account is no longer in use.
 
 # Keep Clam and Go Badgers!❤️🤍
